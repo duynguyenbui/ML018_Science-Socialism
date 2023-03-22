@@ -1,1 +1,7 @@
-# ML018_Science-Socialism
+# ***Science Socialism***
+
+> Mid-term exam 30%<br>
+> Final exam 70% 
+
+
+***Thầy Thạng***
